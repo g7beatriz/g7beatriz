@@ -1,6 +1,6 @@
 - 👋 oi, eu sou @g7beatriz
 - 👀  Estou interessada em estudar direito...
 - 🌱 no momento estou cursando o ensino médio...
-- ouça minha música preeri no you tube: https://youtu.be/KxBkXJEwOv4
+- ouça minha música preferida no you tube: https://youtu.be/KxBkXJEwOv4
 - tenho 15 anos
 - meu filme preferido é https://www.google.com/url?sa=i&url=https%3A%2F%2Foglobo.globo.com%2Fcultura%2Ffilmes%2Fnoticia%2F2023%2F05%2Fquando-lanca-o-filme-da-barbie-o-que-voce-precisa-saber-sobre-o-live-action.ghtml&psig=AOvVaw0FUqmKZopC7eM-bukytxdu&ust=1692112498750000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCOD-ysK43IADFQAAAAAdAAAAABAD
